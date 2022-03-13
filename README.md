@@ -1,4 +1,4 @@
-### Klopp Haoyang Ma
+### Haoyang Ma
 
 PhD student in HKUST.
 
